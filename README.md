@@ -1,1 +1,0 @@
-# Gabrielhj17.github.io
